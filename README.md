@@ -1,4 +1,4 @@
-# SERIAL-PY
-Análise usando Python
+ANÁLISE BÁSICA DO DR. MORTE
 
-**Em andamento
+SERIA KILLER BRITANICO HAROLD SHIPMAN
+
